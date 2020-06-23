@@ -9,3 +9,4 @@ Walter Hartwell White Sr., also known by his clandestine alias Heisenberg, is a 
 * grows his business through various phases until he has his own empire
 * has more money than he can ever spent, but lost trust of everybody around him
 * dies when executing revenge against a group of Nazis, who killed his brother in law Hank Schrader
+> Say my name!
