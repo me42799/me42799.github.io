@@ -10,5 +10,9 @@ Walter Hartwell White Sr., also known by his clandestine alias Heisenberg, is a 
 * has more money than he can ever spent, but lost trust of everybody around him
 * dies when executing revenge against a group of Nazis, who killed his brother in law Hank Schrader
 * just Saul Goodman survives
+* * * 
+<img src="https://www.denofgeek.com/wp-content/uploads/2013/07/288895.jpg?resize=636%2C432"/>  
+---    
+* * *
+##Most known quote
 > Say my name! - Heisenberg... 
-<img src="https://www.denofgeek.com/wp-content/uploads/2013/07/288895.jpg?resize=636%2C432"/>
